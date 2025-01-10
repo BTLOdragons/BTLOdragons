@@ -41,7 +41,7 @@
 
 ## 😮‍ | current projects
 
-- working on a Tower defense Game in Roblox with *@TheBelgianMoron*. Check his acc too.
+- working on a Tower defense Game in Roblox with [@TheBelgianMoron](https://github.com/TheBelgianMoron). Check his acc too.
 
 ## Gaming statistics
 
