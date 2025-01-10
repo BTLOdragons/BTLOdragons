@@ -50,7 +50,7 @@ ___
 |right|left|
 
 ## funny image
-[![anime waifu](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRzLUCK_ZEGSjIryD3EuhR9xZIvjivhc25YJQ&s)](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRzLUCK_ZEGSjIryD3EuhR9xZIvjivhc25YJQ&s)
+[![anime waifu](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRzLUCK_ZEGSjIryD3EuhR9xZIvjivhc25YJQ&s)](https://media.tenor.com/QA6mPKs100UAAAAM/caught-in.gif)
 
 ## One Liner
 ___
