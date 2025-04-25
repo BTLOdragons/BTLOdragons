@@ -47,10 +47,10 @@
 
 | Game | Hours Played|
 |------|-------------|
-| Roblox Fisch | 50+ hours |
-| Minecraft | 100+ hours |
+| Roblox Fisch | 140+ hours |
+| Minecraft | 260+ hours |
 | Roblox Blox Fruit | man da grind is real ( 400+ hours)|
-| Roblox tower defense games | ~100 hours |
+| Roblox tower defense games | ~200 hours |
 
 ## funny image
 [![anime waifu](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRzLUCK_ZEGSjIryD3EuhR9xZIvjivhc25YJQ&s)](https://media.tenor.com/QA6mPKs100UAAAAM/caught-in.gif)
