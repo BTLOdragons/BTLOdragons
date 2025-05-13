@@ -42,6 +42,7 @@
 ## 😮‍ | current projects
 
 - working on a Tower defense Game in Roblox with *[@TheBelgianMoron](https://github.com/TheBelgianMoron)*. Check his acc too.
+- Check out this new website if your a student in Flandrens : *[BrainSmash](https://brainsmash.be/)*. Check it out if you want
 
 ## Gaming statistics
 
@@ -50,7 +51,7 @@
 | Roblox Fisch | 140+ hours |
 | Minecraft | 260+ hours |
 | Roblox Blox Fruit | man da grind is real ( 400+ hours)|
-| Roblox tower defense games | ~200 hours |
+| Roblox Anime Last Stand | ~250 hours |
 | Zennless Zone Zero | 75+ hours |
 
 ## funny image
